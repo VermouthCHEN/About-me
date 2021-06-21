@@ -3,6 +3,10 @@
 ### vermouth0110@gmail.com
 
 # 个人经历
+
+## 2019.11-2021.4
+留学备考
+
 ## PeopleSearch Shanghai 必盛人才 
 ### Assistant Consultant ( 2018.7 - 2019.11)
  主要负责FMCG以及Cosmetic等行业的Marketing职位
