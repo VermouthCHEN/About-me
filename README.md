@@ -1,3 +1,2 @@
 # About-me
-
-just a introduct about myself
+Just a introduction about myself
